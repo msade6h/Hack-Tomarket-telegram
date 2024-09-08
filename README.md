@@ -37,7 +37,10 @@
 - **Instagram:** [msadeghkarimi](https://instagram.com/msadeghkarimi)
 
 ### فایل دانلود 
-- [دانلود فایل](https://t.me/+oQtJoAraFi1kNDA0)
+- [دانلود فایل](https://t.me/msadeghkarimi/546)
+
+### ویدیو آموزش 
+- [مشاهده آموزش ](https://youtu.be/SGZ8DHBVLSU?si=zhbcMt4Q8nqXKeH2)
 
 
 ---
